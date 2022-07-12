@@ -8,3 +8,16 @@
 
 ## Next
 * think about it.
+
+
+https://www.youtube.com/watch?v=QUuKvHHt8Sk
+
+at t=126
+
+fråån t=23
+
+ÆDinÆXI Svandarwiani
+
+https://youtu.be/yUi_S6YWjZw?t=23
+
+EXI = Э€Læван©
